@@ -32,4 +32,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 
 ### 5. Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at https://github.com/cheneryal
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at ac89.apps@gmail.com
